@@ -1,2 +1,0 @@
-# npapaz.github.io
-mibookgr
